@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SquiddlyButtloaf
+- 👀 I’m interested in ... python
+- 🌱 I’m currently learning ... how to function as a human being
+- 💞️ I’m looking to collaborate on ... anything at all, so long as I can learn! 
+- 📫 How to reach me ... message me here or hit me up on Discord. FreebasedPropane#0430
